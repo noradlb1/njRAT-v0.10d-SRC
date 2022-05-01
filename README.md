@@ -3,6 +3,8 @@ njRAT v0.10d-SRC
 
 stop Scamming People Mother Fucker
 
+حاج تضحك على الناس يا اير
+
 Free SRC :)
 
 == ==
